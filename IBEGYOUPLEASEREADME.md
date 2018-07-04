@@ -6,10 +6,10 @@
 # The reason I said the line above this is because I desperately need a friend. Just kidding.
 # I have just run out of things to say.
 # Do I go now? I'm bored.
-# Thanks for reading. I am a beginner by the way.
 # If you actually read it, please email me. I want to see how small the world is. Or how big.
 # I would probably even reply to your email, if I even receive any in the first place.
 # Do you know my email?
 # Fine, I will just give you my email right now. Don't spam.
 # ransontham42@gmail.com
 # Is this long enough? I think it is.
+# Thanks for reading. I am a beginner by the way.
